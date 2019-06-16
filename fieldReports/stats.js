@@ -10,10 +10,18 @@ const stats = [
   {
     approaches: 16,
     date: "6/15/2019",
-    followUpDates: null,
+    followUpDates: 0,
     performanceRating: 3,
     phoneNumbers: 3,
     weekday: "Friday",
+  },
+  {
+    approaches: 6,
+    date: "6/16/2019",
+    followUpDates: null,
+    performanceRating: 2,
+    phoneNumbers: 1,
+    weekday: "Saturday",
   },
 ];
 
