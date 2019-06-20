@@ -13,4 +13,5 @@
   * https://mega.nz/#F!aOB3hSYS!aH8nb9RivZClf2tiZl1j8A
 * Reddit thread: 'The deal with hot girls and why they're definitely not out of you're league'  
   * https://www.reddit.com/r/seduction/comments/adl3l6/the_deal_with_hot_girls_and_why_theyre_definitely/
-  
+ * Todd V: The biggest mistake beginners make 
+  * https://www.youtube.com/watch?v=5ZB3-L9HNSk
