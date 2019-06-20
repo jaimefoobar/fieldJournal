@@ -1,3 +1,4 @@
+* Look up adventerous things to do in chicago
 * How to write a field journal
   * http://attractionondemand.com/2019/02/the-field-report-manifesto-how-to-learn-game-ten-times-faster-than-everyone-else/
 * AMS: When she says “we’ll see” or “I’ll let you know”
