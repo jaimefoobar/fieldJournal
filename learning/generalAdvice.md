@@ -60,6 +60,21 @@ wanting to sleep with a female friend and preferring not to sleep with a female 
 * Do NOT get one-itis! If you are young, you should not think that the girl is your world, or
 put her on a pedestal. A relationship that does not work out does not mean it is the end of the
 world. Keep an abundance mind frame!
+* Never ever take the relationship for granted. Be in your toes all the time. 
+* Someone needs to be worthy of knowing myself.
+* How much can I really know about a person / girl in 3-4 days, weeks, months etc in regards to
+who they are long term potential / marriage? Remember, they too are putting their best foot 
+forward.
+* Chemistry does not equal knowing a girl.
+* If everything’s going great with a girl, then she goes out of town for a week and comes back 
+and is cold and distant, DO NOT try and do anything. Don’t ask to hang out, or what’s wrong, or 
+do nice things to show you care. Just give her space and act like you didn’t notice she went cold.
+And if she has any interest she will come back.
+She’s cold = either banging someone else (or trying to), lost interest, or playing games / testing.
+No matter how you slice it, none of above is worth your time. Keep it moving. 
+Once they turn cold, don't do anything until they come to you. Women don’t like it when you beg 
+for them. They start to feel inferior and see you as weak when you do that. If they really want 
+you they will come in their own.
 
 ## VI. Shit Tests
 
