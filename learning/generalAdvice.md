@@ -83,6 +83,10 @@ to pass her shit test because it put the impitous on her to justify the shittest
 "I don't think you're my type" ... "I'm not your type??"
 * Don't try to explain your way out of a shit test.
 * Don't escalate off of shit tests or off of negatives.
+* If a girl says no to something, don't ask her for the same thing again. E.g. if a girl says no to
+coffee, but then you build up more rapport, don't ask her again for coffee, because then that 
+means she will have to admit that she was wrong. Instead, ask her for a drink, going to get a 
+smoothie, etc.
 
 ## VII. The Process
 

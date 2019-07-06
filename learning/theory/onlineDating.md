@@ -1,0 +1,21 @@
+## General Advice
+
+[Link](https://www.reddit.com/r/seduction/comments/9y4ao8/tinder_hookups_according_to_this_tinder_chick_ive/e9z41hr/)
+
+Man with over 600 matches here.
+I've had a Tinder Profile and I've put normal pictures (holidays, doing activities, me and my car, etc). I've written a funny but detailed description and I was getting about 6-7 out of 10 numbers. Some ended up in sex. Some ended up in just going for a walk. Some ended up in my pile of forgotten conversations on WhatsApp.
+Then I've changed my Tinder description to something like "I'm here looking just for sex, no commitments, no drama. Happy to pay for hotel room and dinner".
+I kid you not that to my surprise I am getting every match's numbers. That 10/10. And not only that I'm getting all their numbers but my match rate per day increased too.
+I was using Tinder the wrong way. The hard way. Wish I have done this from the beginning as it would of saved me a lot of time in endless conversations going nowhere.
+Then I've tried the same trick on Bumble and I am not getting matches anymore there.
+
+I believe I'm average looking. Altough I am 6'7" and have a 4 pack and half with 11% body fat which I think helps. I make sure that I'm always dressed nice (no brand names except for the shoes). I've invested some money into tailored made clothes like casual jeans and casual shirts and definitely worth every penny (iTailor website was always my choice and never disappointed me). Then I also go once a month to the saloon and have my eyebrows done as I don't want to have a monobrow. I use cleansing products for face before bed and in the morning along with moisturiser, for a good radiant skin (because I'm worth it, haha). I'm basically showing through the way I look and dress, my personality. Women seem to be attracted to men who dress well and look after themselves (which I think it's available the other way around too).
+When it comes to the pictures posted, I post pictures where I am engaged in activities I enjoy. Pictures where I am naturally smiling and / or coming across as friendly and approachable. Pictures where I come across as confident (straight body posture, not smiling, engaged into an social activity). The not smiling part I've stole it from catwalk models, they never smile. You should look into why they don't smile and what's the concept behind it as it's really clever.
+Now, after I've already made my first impression when it comes to looks and set the right image into the woman's mind, I need to chat with her. When it comes to chatting, I usually pick on something from their profile or from the way they look and build around that thing. After some short chit-chat, I find an excuse saying that I need to leave and can't chat anymore but she can give me her number and will continue on WhatsApp when I have time. I make it look like I want things to go my way and I'm the one leading where this is going. If she agrees, great. If not, it's not worth the time as I know for sure that there are other women willing to play along.
+All this effort it's worth it as it provides results: Tinder screenshoot.
+There is no such thing as not working for you. If it doesn't work now, it means that you're giving out the wrong vibe and probably you may need to change a thing here and there. I'm sure there is a way to make it work, you just need to practice different approaches and see which one works for you. When I first signed up on Tinder I wasn't getting any matches: I had a fringe and my hair was all over the place (changed my hair style and now it looks modern and looked after). I was wearing clothes which were too large for me and I had no style (changed my wardrobe completely and instead of buying expensive branded clothes, I've bought clothes which put in evidence my physical qualities). I had no idea how to chat with them and I was coming across as needy, awkward and weird. I've been unmatched in under one minute. I've been rejected. I've been laughed at and sometimes made fun of. But despite all that I kept trying. I've tried different approaches. I've done my research. I've experienced what works and what doesn't. I never gave up.
+
+## Opening lines
+
+* https://i.redd.it/3v2qyxzfbbz11.jpg
+* https://i.redd.it/zqllyephuf121.jpg
