@@ -3,19 +3,30 @@
 A list of lines to use depending on subject.
 
 ## Openers
+
 * You're actually kinda cute.
 * You're kinda adorable.
 * I'm sorry I didn't introduce myself.
 
 ## Push / Pull
+
 * You know, there's part of me that likes you and part of me isn't so sure.
 * You're actually kinda ok. I didn't expect to like you at first.
 * I'm going to pretend you didn't just say that because I'm enjoying liking you.
 * You would make a great girlfriend if you weren't so ...
 
-## Other
-* What is your story?
+## Negative
+
+* I hate you.
+* I'm not so sure I like you.
+* Making fun of their attire in a playful way:
+  * "Whoa, that's a crazy jacket."
+  * "Not so sure about the jacket."
 * You know, I'm not so sure you and I are going to get along.
+
+## Other
+
+* What is your story?
 * You seem ... interesting.
 * You have silly expressions.
 * You're trouble.
