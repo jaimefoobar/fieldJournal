@@ -13,7 +13,10 @@ A list of lines to use depending on subject.
 * You know, there's part of me that likes you and part of me isn't so sure.
 * You're actually kinda ok. I didn't expect to like you at first.
 * I'm going to pretend you didn't just say that because I'm enjoying liking you.
+* You look kind of adorable.
 * You would make a great girlfriend if you weren't so ...
+* I thought I loved you until you said that
+* You're really cute but you're kinda dorky
 
 ## Negative
 
@@ -23,6 +26,7 @@ A list of lines to use depending on subject.
   * "Whoa, that's a crazy jacket."
   * "Not so sure about the jacket."
 * You know, I'm not so sure you and I are going to get along.
+* My butt looks bigger than yours
 
 ## Other
 

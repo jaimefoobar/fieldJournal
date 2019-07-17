@@ -24,3 +24,4 @@ Summary of good date ideas
 * [Windy Kitty Chicago](https://www.windykittychicago.com/)
 * Chicago Magic Lounge
 * Manicure and drinks at the beauty bar
+* Sofar Sounds
