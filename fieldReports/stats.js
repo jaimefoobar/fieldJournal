@@ -51,6 +51,23 @@ const stats = [
     phoneNumbers: 2,
     weekday: "Saturday",
   },
+  {
+    approaches: 8,
+    date: "7/13/2019",
+    followUpDates: 0,
+    performanceRating: 1,
+    phoneNumbers: 0,
+    weekday: "Saturday",
+  },
+  {
+    approaches: 17,
+    date: "7/19/2019",
+    followUpDates: 0,
+    instaDate: 1,
+    performanceRating: 2,
+    phoneNumbers: 3,
+    weekday: "Friday",
+  },
 ];
 
 export default stats;
