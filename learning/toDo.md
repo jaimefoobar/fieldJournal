@@ -10,3 +10,4 @@
 * [A list of things I would tell my younger self](https://www.reddit.com/r/seduction/comments/a40v9j/a_list_of_things_i_would_tell_my_younger_self/)
 * [The emotional rollercoaster of game](https://www.youtube.com/watch?v=3hnLq0PlniU&feature=youtu.be)
 * [How to get a girl to chase you](https://www.toddvdating.com/how-to-get-a-girl-to-chase-youliterally-a-lesson-in-extreme-non-neediness/)
+* [Reddit - how to give her 6x orgasm](https://www.reddit.com/r/seduction/comments/ad5jbw/over_3mo_i_taught_myself_to_give_her_6x_orgasms/)
