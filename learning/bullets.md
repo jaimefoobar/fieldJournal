@@ -25,3 +25,5 @@ don't put you in the friendzone, you do.
 * Girls get bored when sexual tension is missing.
 * Escalate while disqualifying
 * Repeat her name back to her.
+* Phrase your teases more subtlely so it doesn't seem like you're trying to be
+  insulting but it seems like you couldn't help but not be insulting.

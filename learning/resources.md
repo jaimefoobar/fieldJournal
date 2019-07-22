@@ -5,6 +5,7 @@ Below is a list of useful resources grouped by subject.
 * [I. Gurus](#gurus)
 * [II. Night Game](#night-game)
 * [III. Relationships](#relationships)
+* [IV. Videos](#videos)
 
 ## I. Gurus
 
@@ -25,3 +26,7 @@ Below is a list of useful resources grouped by subject.
 ## III. Relationships
 
 * [How to Ask a Girl to Be Your Girlfriend Without Totally Screwing It Up](https://www.toddvdating.com/how-to-ask-a-girl-to-be-your-girlfriend-without-totally-screwing-up/)
+
+## IV. Videos
+
+

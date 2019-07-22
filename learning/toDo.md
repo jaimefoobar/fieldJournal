@@ -18,4 +18,3 @@
 * [Getting IMMEDIATE Results As A Beginner](https://www.youtube.com/watch?v=QfzQEJpsuSE&feature=youtu.be)
 * [Direct Vs. Indirect Game (Make Validation Work For You)](https://www.youtube.com/watch?v=17BuNEtBroU&feature=youtu.be)
 * [How to pull difficult sets](https://www.youtube.com/watch?v=OWdq9hGUl7Y&feature=youtu.be)
-* [The RIGHT & WRONG Way To Tease A Girl](https://www.youtube.com/watch?v=LjeAEtXbRbs&feature=youtu.be)
