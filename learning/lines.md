@@ -69,3 +69,7 @@ A list of lines to use depending on subject.
 * You make these silly expressions
 * My butt looks bigger than yours
 * You'll never get in my pants if you keep doing that
+
+## Closers
+
+* If you keep looking at me like that I'm going to have to kiss you.

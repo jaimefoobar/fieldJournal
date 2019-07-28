@@ -27,3 +27,5 @@ don't put you in the friendzone, you do.
 * Repeat her name back to her.
 * Phrase your teases more subtlely so it doesn't seem like you're trying to be
   insulting but it seems like you couldn't help but not be insulting.
+* You are probably cooler than the girl.
+* Don't try to be hilarious. Try to be interesting.
