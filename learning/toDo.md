@@ -18,3 +18,4 @@
 * [Getting IMMEDIATE Results As A Beginner](https://www.youtube.com/watch?v=QfzQEJpsuSE&feature=youtu.be)
 * [Direct Vs. Indirect Game (Make Validation Work For You)](https://www.youtube.com/watch?v=17BuNEtBroU&feature=youtu.be)
 * [How to pull difficult sets](https://www.youtube.com/watch?v=OWdq9hGUl7Y&feature=youtu.be)
+* [Quick Fixes to Improve Your Daygame](https://www.youtube.com/watch?v=4PhvsLLbXHY&feature=youtu.be)
