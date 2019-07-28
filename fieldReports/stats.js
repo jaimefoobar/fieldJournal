@@ -1,4 +1,4 @@
-const stats = [
+module.exports = [
   {
     approaches: 2,
     date: "6/13/2019",
@@ -77,6 +77,13 @@ const stats = [
     phoneNumbers: 1,
     weekday: "Saturday",
   },
+  {
+    approaches: 14,
+    date: "7/27/2019",
+    followUpDates: 0,
+    instaDate: 0,
+    performanceRating: 1,
+    phoneNumbers: 0,
+    weekday: "Saturday",
+  },
 ];
-
-export default stats;
