@@ -19,3 +19,7 @@
 * [Direct Vs. Indirect Game (Make Validation Work For You)](https://www.youtube.com/watch?v=17BuNEtBroU&feature=youtu.be)
 * [How to pull difficult sets](https://www.youtube.com/watch?v=OWdq9hGUl7Y&feature=youtu.be)
 * [Quick Fixes to Improve Your Daygame](https://www.youtube.com/watch?v=4PhvsLLbXHY&feature=youtu.be)
+* [Interactions "Going Nowhere" -- Why You Have Escalation Issues](https://www.youtube.com/watch?v=19wDKBoT2zU&feature=youtu.be)
+* [My first experience ever getting laid from a cold approach in a nightclub](https://www.reddit.com/r/seduction/comments/cbzxly/my_first_experience_ever_getting_laid_from_a_cold/)
+* [RECRUITING ADMINS! Local Wingman Groups Around The World](https://www.reddit.com/r/seduction/comments/ck6goj/recruiting_admins_local_wingman_groups_around_the/)
+* Cube test of Forest Test

@@ -63,7 +63,7 @@ A list of lines to use depending on subject.
 * Making fun of their attire in a playful way:
   * "Whoa, that's a crazy jacket."
   * "Not so sure about the jacket."
-* You know, I'm not so sure you and I are going to get along.
+ You know, I'm not so sure you and I are going to get along.
 * You seem ... interesting
 * You know, I'm not so sure you and I are going to get along
 * You make these silly expressions

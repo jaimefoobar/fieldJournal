@@ -29,4 +29,7 @@ Below is a list of useful resources grouped by subject.
 
 ## IV. Videos
 
+* [How to Talk to Women: 4 Dreadful Mistakes and 1 Top Tip](https://www.youtube.com/watch?v=7d46ECqs2m4)
+* [How To Never Run Out Of Things To Say - Verbal Game, Storytelling And Flirting](https://www.youtube.com/watch?v=oxOih6GwSXI&t=1s)
+
 
