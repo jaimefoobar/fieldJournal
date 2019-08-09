@@ -118,4 +118,16 @@ module.exports = [
 	sameDayLays: 0,
     weekday: "Saturday",
   },
+  {
+    approaches: 9,
+    date: "8/8/2019",
+    followUpDates: 0,
+	game: 'night',
+    instaDate: 0,
+    performanceRating: 1,
+    phoneNumbers: 0,
+	sameDayLays: 0,
+	solo: true,
+    weekday: "Friday",
+  },
 ];
