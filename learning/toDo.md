@@ -26,9 +26,12 @@
 * [Being direct in nightclubs or bars](https://www.reddit.com/r/seduction/comments/asssuk/being_direct_in_nightclubs_or_bars/)
 * [My first experience ever getting laid from a cold approach in a nightclub](https://www.reddit.com/r/seduction/comments/cbzxly/my_first_experience_ever_getting_laid_from_a_cold/)
 * [RECRUITING ADMINS! Local Wingman Groups Around The World](https://www.reddit.com/r/seduction/comments/ck6goj/recruiting_admins_local_wingman_groups_around_the/)
+* [The BEST way to use push/pull in a bar or club environment](https://www.reddit.com/r/seduction/comments/8dgfym/the_best_way_to_use_pushpull_in_a_bar_or_club/)
+* [Push-pull is the best part of the game. Whats your best push pull conversation?](Push-pull is the best part of the game. Whats your best push pull conversation?)
 
 ## Articles
 * [How to get a girl to chase you](https://www.toddvdating.com/how-to-get-a-girl-to-chase-youliterally-a-lesson-in-extreme-non-neediness/)
+* [Text Game, dealing with silence](https://www.toddvdating.com/text-game-dealing-with-silence/)
 
 ## Other
 * Cube test or Forest Test
