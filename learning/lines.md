@@ -33,6 +33,7 @@ A list of lines to use depending on subject.
 
 ## Push / Pull
 
+* What am I going to do with you?
 * You know, there's part of me that likes you and part of me isn't so sure.
 * You're actually kinda cute.
 * You're kinda adorable.
