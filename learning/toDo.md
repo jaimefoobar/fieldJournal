@@ -15,6 +15,7 @@
 * [The Zen of Nightgame](https://www.youtube.com/watch?v=HJeVz8dfN-k&feature=youtu.be)
 * [The Nightgame Gameplan: How I Win EVERY Night](https://www.youtube.com/watch?v=GBWtLFysmns&feature=youtu.be)
 * [My Favorite Books on Sex, Game and Attraction](https://www.youtube.com/watch?v=0vH0j-oCfNQ&feature=youtu.be)
+* [Meeting Girls Is EASY: How To Get Better At Opening](https://www.youtube.com/watch?v=DmSbNEJJbi8&feature=youtu.be)
 
 ## Reddit Threads
 * [The Smart Way of Number Closing](https://www.reddit.com/r/seduction/comments/clw13k/the_smart_way_of_numberclosing/)
@@ -35,3 +36,5 @@
 
 ## Other
 * Cube test or Forest Test
+* How to turn on women with words
+* Famous movie quotes to use on women
