@@ -70,7 +70,19 @@ A list of lines to use depending on subject.
 * You make these silly expressions
 * My butt looks bigger than yours
 * You'll never get in my pants if you keep doing that
+* Oh I thought you were a lawyer cause you look stuck up
 
 ## Closers
 
 * If you keep looking at me like that I'm going to have to kiss you.
+
+## Shit Tests
+* I have a boyfriend
+  * Oh, that's surprising
+  * Do you want another?
+  * Do you want a better one?
+
+## Questions
+* What's the worst thing about your body that you hate?
+* What's the craziest thing you've ever done?
+* Who's better at sex? Men or women?

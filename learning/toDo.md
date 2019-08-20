@@ -34,7 +34,12 @@
 * [How to get a girl to chase you](https://www.toddvdating.com/how-to-get-a-girl-to-chase-youliterally-a-lesson-in-extreme-non-neediness/)
 * [Text Game, dealing with silence](https://www.toddvdating.com/text-game-dealing-with-silence/)
 
+## Books
+* The psychology of achievement
+* Advanced dating techniques
+
 ## Other
 * Cube test or Forest Test
+* Five questions game
 * How to turn on women with words
 * Famous movie quotes to use on women

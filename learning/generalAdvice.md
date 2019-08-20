@@ -20,6 +20,7 @@ disappointed.
 you. Not even he gets to be with every girl he wants.
 * Rejection, ghosting, and failure are part of the game. Instead of moping and getting all worked 
 up about it, grow a thick skin to it and pick yourself up afterward and keep going.
+* My reality trumps everything
 
 ## II. Banter and Conversation
 
@@ -33,6 +34,8 @@ one more quickly.
 * Girls get bored when sexual tension is missing.
 * Escalate while disqualifying
 * Repeat her name back to her.
+* When talking to her, look at her while thinking of her like you're fucking
+  her from behind. Assume attraction.
 
 ## III. How to Learn
 
