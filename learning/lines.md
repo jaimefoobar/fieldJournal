@@ -2,6 +2,20 @@
 
 A list of lines to use depending on subject.
 
+## Table of Contents
+
+* [Openers](#openers)
+* [Man to Woman](#man-to-woman)
+* [Compliment](#compliment)
+* [Poems](#poems)
+* [Push / Pull](#push-/-pull)
+* [Joking Intent](#joking-intent)
+* [Negative](#Negative)
+* [Closers](#Closers)
+* [Shit Tests](#shit-tests)
+* [Questions](#questions)
+* [Setting up a date](#setting-up-a-date)
+
 ## Openers
 
 * You're actually kinda cute.
@@ -22,7 +36,7 @@ A list of lines to use depending on subject.
 * You look sexy in that outfit
 * I have a weakness for (e.g. girls in orange dresses) 
 
-## compliment
+## Compliment
 
 * You're vibe is amazing
 * You're a nice hugging size
@@ -77,12 +91,18 @@ A list of lines to use depending on subject.
 * If you keep looking at me like that I'm going to have to kiss you.
 
 ## Shit Tests
+
 * I have a boyfriend
   * Oh, that's surprising
   * Do you want another?
   * Do you want a better one?
 
 ## Questions
+
 * What's the worst thing about your body that you hate?
 * What's the craziest thing you've ever done?
 * Who's better at sex? Men or women?
+
+## Setting up a date
+
+* Wear something cute / sexy so we'll match.
