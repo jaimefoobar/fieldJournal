@@ -30,6 +30,8 @@
 * [RECRUITING ADMINS! Local Wingman Groups Around The World](https://www.reddit.com/r/seduction/comments/ck6goj/recruiting_admins_local_wingman_groups_around_the/)
 * [The BEST way to use push/pull in a bar or club environment](https://www.reddit.com/r/seduction/comments/8dgfym/the_best_way_to_use_pushpull_in_a_bar_or_club/)
 * [Push-pull is the best part of the game. Whats your best push pull conversation?](Push-pull is the best part of the game. Whats your best push pull conversation?)
+* [Conversation skills and getting a number that will lead to a date](https://www.reddit.com/r/seduction/comments/85eadq/what_ive_learned_after_9_years_in_the_game/)
+* [Easy & Complete Guide To Bringing Girls Home From Clubs, Bars, And Dates](https://www.reddit.com/r/seduction/comments/cl3svh/easy_complete_guide_to_bringing_girls_home_from/)
 
 ## Articles
 * [How to get a girl to chase you](https://www.toddvdating.com/how-to-get-a-girl-to-chase-youliterally-a-lesson-in-extreme-non-neediness/)
