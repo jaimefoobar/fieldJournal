@@ -1,6 +1,6 @@
-# Lines
+# Talking
 
-A list of lines to use depending on subject.
+How to talk to women
 
 ## Table of Contents
 
@@ -99,10 +99,32 @@ A list of lines to use depending on subject.
 
 ## Questions
 
+### Fist Meeting
+
 * What's the worst thing about your body that you hate?
 * What's the craziest thing you've ever done?
 * Who's better at sex? Men or women?
+* What do you do when you're not at the club / bar?
+* What's important to you?
+* What's your dream job?
+* What's one thing I wouldn't guess about you?
+* Tell me about your most ridiculous adventure?
+
+### First Date / getting to know more
+
+* What would you do if you had a million dollars?
 
 ## Setting up a date
 
 * Wear something cute / sexy so we'll match.
+
+## Conversations
+
+* Actively listening.
+  * When she tells you about the time she went to Italy, don't think to
+    yourself 'How can I make this about me and my experience with Italy?'.
+Instead 1. Understand the deeper meaning of what she said, and 2. repeat what
+she said to you back to her.
+* Once you find out why she's unique, give her a statement of intent. For
+  example, if she prides herself on being well read, say something like 'huh,
+you're pretty well read ... I find that pretty sexy.'
