@@ -4,8 +4,13 @@ Messaging / Text game
 
 ## Table of Contents
 
+* [Online Dating](#online-dating)
 * [Openers](#openers)
 * [Re-Initiating](#re-initiating)
+
+## Online Dating
+
+* Possible profile: Amateur masseuse. Come over and we'll have some wine, cook some steak, and you can lose to me at Mario Kart.
 
 ## Openers
 
