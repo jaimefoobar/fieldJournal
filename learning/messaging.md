@@ -19,6 +19,7 @@ first date was. You keep saying it was dinner but im sure it was a movie."
 * Did it hurt when you fell... from the vending machine cause you’re a total snack.
 * I would take you to the movies but I’m not allowed to bring outside snacks.
 * I've been t old before that only crazy girls message first. What's your opinion on that?
+* Finally my type of girl.
 
 ## Re-initiating
 * If I leave a conversation hanging for multiple days and I want to bring it back, I send a CPR gif
